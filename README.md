@@ -1,2 +1,2 @@
 # Meta-Vr
-Website URL : https://rishikesh456.github.io/Meta-Vr-/MetaSports.html
+Website URL : https://rishikesh506.github.io/Meta-Vr-/MetaSports.html
